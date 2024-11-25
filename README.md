@@ -4,4 +4,4 @@ I don't like low oods gamble.
 
 The codes help the student grab better understanding of the lecture
 
-Finished.
+Finished!
